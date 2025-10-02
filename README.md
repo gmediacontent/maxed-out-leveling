@@ -1,1 +1,2 @@
-# maxed-out-leveling
+# Maxed Out Leveling
+Après un accident de voiture qui l’a mystérieusement transporté dans un pays d’arts martiaux, Cha Shinhyun s’entraîne pendant 140 ans et devient l’être le plus fort de Murim. Mais lorsqu’il revient sur Terre, rien n’est plus comme dans ses souvenirs. Bien qu’il soit enfin réuni avec sa sœur, la maison qu’il a connue autrefois est maintenant remplie de gens appelés « chasseurs » qui vainquent des monstres pour augmenter leurs pouvoirs dans une course constante pour la survie. Il doit maintenant repartir du niveau 1 et se venger de la personne qui a changé son destin !
